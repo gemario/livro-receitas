@@ -5,4 +5,5 @@
 - Strogonoff de Frango 🐔
 - Pavê 🍮
 - Bolo de Cenoura 🥮
+- Lasanha à Bolonhesa 🥘
 
